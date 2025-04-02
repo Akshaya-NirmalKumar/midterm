@@ -1,1 +1,1 @@
-# midterm is happening 
+# midterm is happening today
